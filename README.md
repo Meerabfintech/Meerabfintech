@@ -3,7 +3,7 @@
 
 Email Me 👉 ✉️ **meerabj784@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
-- 🌱 **I’m currently learning:** Automation - DSA
+- 🌱 **I’m currently learning:** - DSA
 ## 🌐 Socials:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/meerab-tahira-a91986352/)
 
